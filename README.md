@@ -10,7 +10,7 @@ This is a guide to make sure karaoke-goers have the best time possible. Karaoke 
 - **Look up the lyrics first.** There’s a huge difference between enjoying a song by yourself and repeating its lyrics in front of your karaoke crew.
 - **Know when to stop.** Have you sang several songs in a row? Share the mic. Was that your third drink? Don't order a fourth. Karaoke is about fun. For everyone.
 - **Use good judgement when it comes to song choices.** Every karaoke crew has their own preferences regarding acceptable musical styles, artists, subjects, and SFW/NSFW levels. Make sure you agree on your limits together: for example, many karaoke-goers prefer not to sing songs by controversial artists.
-- **Check with the room before skipping a song** Don't skip stuff without asking, especially near the end. The point of karaoke is to be happy. This makes people sad.
+- **Check with the room before skipping a song.** Don't skip stuff without asking, especially near the end. The point of karaoke is to be happy. This makes people sad.
 
 
 ## Tips to make karaoke more fun for everyone
